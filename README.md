@@ -1,3 +1,3 @@
 # View-instagram-Private-video
 
-go to Here:- https://instagramvideo.tk/
+go to Here:- https://instapvideo.tk
